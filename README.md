@@ -1,3 +1,3 @@
-# arjunkanwal.github.io
+# bauddhik.github.io
 
-URL: https://arjun8900.github.io/
+URL: https://bauddhik.github.io/
